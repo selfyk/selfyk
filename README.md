@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @selfyk
+- 👋 Hi, I’m @Selfy_K
 - 👀 I’m interested in Art & Graphic Design
 - 🌱 I’m currently learning on preparing better work resume
 - 💞️ I’m looking to collaborate on Portofolio
